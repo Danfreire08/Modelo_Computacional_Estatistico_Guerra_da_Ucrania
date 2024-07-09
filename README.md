@@ -1,0 +1,1 @@
+# Modelo_Computacional_Estatistico_Guerra_da_Ucrania
